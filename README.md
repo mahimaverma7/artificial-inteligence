@@ -1,2 +1,0 @@
-# artificial-inteligence
-artificial-inteligence
